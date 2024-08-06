@@ -1,2 +1,2 @@
-informe sena (https://lookerstudio.google.com/reporting/a0a2bca6-3fb9-467b-9a8d-16f25c83f180/page/8j76D).
+(https://lookerstudio.google.com/s/mjECmONOVOM)).
 [INFORME SENA] (informes_centros_formacion_SENA.jpg).
